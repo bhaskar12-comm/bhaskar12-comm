@@ -21,7 +21,7 @@
 
 ## 🤝 Let's Connect!
 
-- 📧 [bhaskarcoder6@gmail.com] | [YourLinkedIn] | []
+- 📧 [bhaskarcoder6@gmail.com] | [https://www.linkedin.com/in/bhaskar-jyoti-sarma-9a03182a6/] | [https://github.com/bhaskar12-comm]
 
 ---
 
